@@ -1,4 +1,6 @@
 Since 2021, I’ve had the privilege of supporting over 100 stories for USDA NRCS through video documentaries, articles, and photos across two multi-year, multi-state contracts. 
+Through this experience, I have interviewed hundreds of farmers, ranchers, forestry land owners, and agricultural experts.
+
 As a naturally curious, lifelong learner, I absolutely love meeting new people, hearing their stories, and learning about different ways of life. 
 My role has always been about making my interviewees feel comfortable, so they can share the details that make their stories compelling and real.
 
